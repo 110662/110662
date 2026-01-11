@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 👋
 
 - Previously active account.
 - Now using: @toshiaki-sato9
